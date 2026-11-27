@@ -2,7 +2,7 @@
 ### Senior Data Extraction Architect & Financial Modeling Specialist
 **Bethelmind Analytics Lagos Desk** • High-Frequency B2B Data Pipelines & Institutional Financial Models
 
-[![Upwork Profile](https://img.shields.io/badge/Upwork-Top_Rated_($65/hr)-14a800?style=for-the-badge&logo=upwork&logoColor=white)](https://www.upwork.com/freelancers/~017c67768fc98616c6)
+[![Upwork Profile](https://img.shields.io/badge/Upwork-ID_Verified_($65/hr)-14a800?style=for-the-badge&logo=upwork&logoColor=white)](https://www.upwork.com/freelancers/~017c67768fc98616c6)
 [![Fiverr Services](https://img.shields.io/badge/Fiverr-Order_Custom_Gig-1dbf73?style=for-the-badge&logo=fiverr&logoColor=white)](https://www.fiverr.com/oyelakintosin)
 [![Selar Creator Store](https://img.shields.io/badge/Selar-Verified_Creator_Store-ff5a5f?style=for-the-badge&logo=googleplay&logoColor=white)](https://selar.com/m/oyelakintosin)
 [![Gumroad Flagship](https://img.shields.io/badge/Gumroad-Flagship_OS_($499)-36a9ae?style=for-the-badge&logo=gumroad&logoColor=white)](https://bethelmind.gumroad.com/l/szhrhy)
